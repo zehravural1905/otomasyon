@@ -1,0 +1,2 @@
+# otomasyon
+15541010 ZEHRA VURAL
